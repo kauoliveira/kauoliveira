@@ -1,4 +1,4 @@
-### MEU NOME É KRAUANE👋
+### MEU NOME É KaUANE👋
 
 <!--
 **kauoliveira/kauoliveira** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
